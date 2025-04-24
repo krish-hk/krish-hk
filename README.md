@@ -32,7 +32,7 @@
 ---
 
 ### 📬 Let’s Connect!
-- 📸 [Instagram Art Page](#https://www.instagram.com/kicha_hk/)
+- 📸 [Instagram](#https://www.instagram.com/kicha_hk/)
 - 💼 [LinkedIn](#www.linkedin.com/in/hari-krishna-269135320)
 
 ---
