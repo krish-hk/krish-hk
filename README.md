@@ -32,8 +32,8 @@
 ---
 
 ### 📬 Let’s Connect!
-- 📸 [Instagram](#https://www.instagram.com/kicha_hk/)
-- 💼 [LinkedIn](#www.linkedin.com/in/hari-krishna-269135320)
+- 📸 [Instagram](https://www.instagram.com/kicha_hk/)
+- 💼 [LinkedIn](www.linkedin.com/in/hari-krishna-269135320)
 
 ---
 
